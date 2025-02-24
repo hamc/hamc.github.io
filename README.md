@@ -1,1 +1,0 @@
-# hamc.github.io
